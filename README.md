@@ -1,4 +1,4 @@
-<p align=center> <img src="hhttps://i.pinimg.com/736x/7a/7c/34/7a7c343e93339a2b406f1612bf728322.jpg" width=240>
+<p align=center> <img src="https://i.pinimg.com/736x/7a/7c/34/7a7c343e93339a2b406f1612bf728322.jpg" width=240>
 <p align=center>  semi ia ‎  / ‎  contact me → dc: <a href="https://discord.com/users/873209353715453952">iheartpengu</a>
 <p align=center> <img src=https://komarev.com/ghpvc/?username=r4n-reii&color=000000&style=flat-square&label=songs>
 
