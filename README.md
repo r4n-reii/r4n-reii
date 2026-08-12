@@ -1,4 +1,3 @@
-<p align=center> <img src="https://i.pinimg.com/736x/7a/7c/34/7a7c343e93339a2b406f1612bf728322.jpg" width=240>
-<p align=center>  semi ia ‎  🙇‍♀️ ‎  contact me → dc: <a href="https://discord.com/users/873209353715453952">iheartpengu</a>
 <p align=center> <img src=https://komarev.com/ghpvc/?username=r4n-reii&color=000000&style=flat-square&label=songs>
-
+  <p align=center>  hi! its rei. i’ll be off pt for a bit. these past few months i’ve not been feeling well both physically and mentally; i haven’t been very verbal about it because i didn’t want to worry anyone - but it’s gotten to a point i might affect my friends, and that’s the last thing i want to do. so i’ll be taking a step back for everyone’s sake. i don’t know when i’ll be back, but i hope i’ll be okay soon :) 08/12
+<p align=center> contact me → dc: <a href="https://discord.com/users/873209353715453952">iheartpengu</a>
