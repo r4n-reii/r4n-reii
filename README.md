@@ -5,4 +5,4 @@
   <p align=left> ㅤㅤㅤㅤㅤㅤㅤ｡ﾟ•┈୨♡୧┈• ｡ﾟ
 <p align=left>ㅤㅤㅤㅤㅤ<a href="https://discord.com/users/873209353715453952">discord</a>ㅤ⟢ㅤ<a href="https://x.com/OKUJ0UGUMI">artcrds</a>
    <p align=left> ㅤ
-<p align=left> i really loveeee mizurui... if you couldn't tell 𐔌՞ ܸ.ˬ.ܸ՞𐦯
+<p align=left> i really loveee mizurui... if you couldn't tell 𐔌՞ ܸ.ˬ.ܸ՞𐦯
