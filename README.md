@@ -6,5 +6,5 @@
 ㅤ
 ㅤ
 <p align=center> <a href="https://rentry.co/therooftop">rentry</a>ㅤ(,; ⩌ ;,)ㅤ<a href="https://frustration.atabook.org/">新book</a>
-ㅤ
-ㅤ
+<p align=center>ㅤ
+<p align=center>ㅤ
