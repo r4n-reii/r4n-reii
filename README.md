@@ -5,5 +5,5 @@
 <p align=center> rmking this @_@ tnx for 200 flws!
 ㅤ
 ㅤ
-<p align=center> <a href="https://rentry.co/therooftop">rentry</a>ㅤ(,; ⩌ ;,)ㅤ<a href="https://frustration.atabook.org/">新book</a>
+<p align=center>  </a>ㅤ(,; ⩌ ;,)ㅤ<a href="https://frustration.atabook.org/">新book</a>
 <p align=center>ㅤ
